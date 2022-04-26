@@ -1,1 +1,0 @@
-# woonpunt-obstructie-van-woningen
